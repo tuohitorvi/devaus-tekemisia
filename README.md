@@ -1,1 +1,0 @@
-# devaus-tekemisia
